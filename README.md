@@ -1,4 +1,4 @@
-## Hi there, I'm @wilson-brice! 👋
+## Hi there, I'm Wilson ! 👋
 
 ### About Me  
 👀 I'm an enthusiastic developer passionate about solving problems and building innovative solutions. My interests include:  
